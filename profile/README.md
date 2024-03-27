@@ -1,3 +1,3 @@
-# Milky Dudes
+# Milky Dudes 🥛
 
 Just two milky dudes
